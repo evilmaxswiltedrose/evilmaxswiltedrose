@@ -3,7 +3,10 @@
 
 
 <img width="802" height="311" alt="IMG_5709-removebg-preview" src="https://github.com/user-attachments/assets/e36939bf-3f30-4a9c-98ba-67587b6879c2" />
+<img width="532" height="24" alt="IMG_5453" src="https://github.com/user-attachments/assets/553723c8-0dbc-4f56-9a4e-026826c1ba27" />
+
 >> MAIN INFO !! 💌
+
 
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
@@ -15,6 +18,7 @@
  ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
 <img width="450" height="450" alt="2026_11_26_0qx_Kleki" src="https://github.com/user-attachments/assets/012b12d6-76a8-4149-9ff3-f2121517dec4" />
+<img width="532" height="24" alt="IMG_5453" src="https://github.com/user-attachments/assets/553723c8-0dbc-4f56-9a4e-026826c1ba27" />
 
 >> MAIN DNI !! 💌
 
@@ -42,4 +46,10 @@ We don’t bite !
 <img width="99" height="56" alt="IMG_5450" src="https://github.com/user-attachments/assets/f64a26cf-840f-4bb7-b115-dc9bce199f66" />
 <img width="99" height="56" alt="IMG_5451" src="https://github.com/user-attachments/assets/d04cb2f9-4778-41d7-95d6-d834d4577b13" />
 
+︶⊹︶︶⠀୨୧⠀︶︶⊹︶
+
+IF IM FOLLOWING SOMEONE PROBLEMATIC ,, REMIND ME PLEASE ! 
+I don’t perfer to be involved in drama , so please do not mention me unless I have done something .
+
+<img width="532" height="24" alt="IMG_5453" src="https://github.com/user-attachments/assets/553723c8-0dbc-4f56-9a4e-026826c1ba27" />
 
