@@ -25,3 +25,7 @@
  ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
  >> SIGN MY ATA ,, I NEED MORE FRIENDS !!! ❤️
+
+<img width="749" height="43" alt="IMG_5452" src="https://github.com/user-attachments/assets/9d99c61e-72f4-4917-a821-e224eb800bcf" />
+
+
