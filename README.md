@@ -1,5 +1,11 @@
 ## MAIN INFO !! 💌
+︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
+ ۫   𐑺   Spongey / spongecake ˑ   ⌕ AUTISM ,, ADHD ! ࣭   ᘐ  💌
+
+ ㅤㅤ◞    ꜝꜞ Taken ,, 10/20/26˳  𓏲  ˑ 
+
+ ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 <!--
 **evilmaxswiltedrose/evilmaxswiltedrose** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
