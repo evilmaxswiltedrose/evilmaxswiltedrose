@@ -20,7 +20,7 @@
 
  ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
- If your racist ,, Homophobic ,, Transphobic ,, And all of that please keep your interacts to a minimum , I am sensitive and can tend to lash out and get annoyed easily , otherwise PLEASE interact with me ! <img width="250" height="252" alt="IMG_5442" src="https://github.com/user-attachments/assets/dfbf8f00-c7ab-4aaa-9e5b-e86d5e9f6d53" />
+ If your racist ,, Homophobic ,, Transphobic ,, And all of that please keep your interacts to a minimum , I am sensitive and can tend to lash out and get annoyed easily , otherwise PLEASE interact with me ! <img width="20" height="20" alt="IMG_5442" src="https://github.com/user-attachments/assets/dfbf8f00-c7ab-4aaa-9e5b-e86d5e9f6d53" />
 
  ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
