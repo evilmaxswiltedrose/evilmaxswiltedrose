@@ -8,7 +8,8 @@
 
  ۫   𐑺   Spongey / spongecake ˑ   ⌕ AUTISM ,, ADHD ! ࣭   ᘐ  💌
 
- ㅤㅤ◞    ꜝꜞ Taken ,, 10/20/26˳  𓏲  ˑ 
+ ㅤㅤ◞    ꜝꜞ Taken ,, 10/20/26˳  𓏲  ˑ <img width="20" height="20" alt="IMG_5461" src="https://github.com/user-attachments/assets/a1aabe3a-3d3e-4f72-9ca4-a63004eadb97" />
+
 
  ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
