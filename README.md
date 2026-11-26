@@ -3,7 +3,7 @@
 
 
 <img width="802" height="311" alt="IMG_5709-removebg-preview" src="https://github.com/user-attachments/assets/e36939bf-3f30-4a9c-98ba-67587b6879c2" />
-## MAIN INFO !! 💌
+>> MAIN INFO !! 💌
 
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
@@ -16,7 +16,7 @@
 
 <img width="450" height="450" alt="2026_11_26_0qx_Kleki" src="https://github.com/user-attachments/assets/012b12d6-76a8-4149-9ff3-f2121517dec4" />
 
-## MAIN DNI !! 💌
+>> MAIN DNI !! 💌
 
  ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
@@ -27,5 +27,19 @@
  >> SIGN MY ATA ,, I NEED MORE FRIENDS !!! ❤️
 
 <img width="749" height="43" alt="IMG_5452" src="https://github.com/user-attachments/assets/9d99c61e-72f4-4917-a821-e224eb800bcf" />
+
+ ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
+
+Please do not be afraid to interact w/ me or friends , we’d love to have you ! 
+We don’t bite ! 
+
+<img width="99" height="56" alt="IMG_4331" src="https://github.com/user-attachments/assets/fb9af29b-84af-4b8c-a940-087d4471f464" />
+<img width="99" height="56" alt="IMG_4332" src="https://github.com/user-attachments/assets/cca841c1-7585-44fd-b85a-c724ef2946ec" />
+<img width="99" height="56" alt="IMG_4328" src="https://github.com/user-attachments/assets/9122da42-b9dc-4510-bed6-b04d088824b7" />
+<img width="99" height="56" alt="IMG_4329" src="https://github.com/user-attachments/assets/2acff5d2-0e80-4b7a-b5d4-d7d7330343b9" />
+<img width="99" height="56" alt="IMG_4330" src="https://github.com/user-attachments/assets/cadc034b-5c0f-4bc3-80ba-1b38139d97a9" />
+<img width="99" height="56" alt="IMG_5449" src="https://github.com/user-attachments/assets/fdfba4c0-ac21-43a2-95da-218ef0aec46f" />
+<img width="99" height="56" alt="IMG_5450" src="https://github.com/user-attachments/assets/f64a26cf-840f-4bb7-b115-dc9bce199f66" />
+<img width="99" height="56" alt="IMG_5451" src="https://github.com/user-attachments/assets/d04cb2f9-4778-41d7-95d6-d834d4577b13" />
 
 
