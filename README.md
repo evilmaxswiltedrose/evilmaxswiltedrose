@@ -16,8 +16,12 @@
 
 <img width="450" height="450" alt="2026_11_26_0qx_Kleki" src="https://github.com/user-attachments/assets/012b12d6-76a8-4149-9ff3-f2121517dec4" />
 
-## MAIN DNI 💌
+## MAIN DNI !! 💌
 
  ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
- If your racist ,, Homophobic ,, Transphobic ,, And all of that please keep your interacts to a minimum , I am sensitive and can tend to lash out and get annoyed easily , otherwise PLEASE interact with me !
+ If your racist ,, Homophobic ,, Transphobic ,, And all of that please keep your interacts to a minimum , I am sensitive and can tend to lash out and get annoyed easily , otherwise PLEASE interact with me ! <img width="250" height="252" alt="IMG_5442" src="https://github.com/user-attachments/assets/dfbf8f00-c7ab-4aaa-9e5b-e86d5e9f6d53" />
+
+ ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
+
+ >> SIGN MY ATA ,, I NEED MORE FRIENDS !!! ❤️
