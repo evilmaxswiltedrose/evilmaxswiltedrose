@@ -24,7 +24,7 @@
 
  ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
- If your racist ,, Homophobic ,, Transphobic ,, And all of that please keep your interacts to a minimum , I am sensitive and can tend to lash out and get annoyed easily , otherwise PLEASE interact with me ! <img width="20" height="20" alt="IMG_5442" src="https://github.com/user-attachments/assets/dfbf8f00-c7ab-4aaa-9e5b-e86d5e9f6d53" />
+ ゛ ⸝⸝.ᐟ⋆ If your racist ,, Homophobic ,, Transphobic ,, And all of that please keep your interacts to a minimum , I am sensitive and can tend to lash out and get annoyed easily , otherwise PLEASE interact with me ! <img width="20" height="20" alt="IMG_5442" src="https://github.com/user-attachments/assets/dfbf8f00-c7ab-4aaa-9e5b-e86d5e9f6d53" />
 
  ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
@@ -34,7 +34,7 @@
 
  ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
-Please do not be afraid to interact w/ me or friends , we’d love to have you ! 
+゛ ⸝⸝.ᐟ⋆ Please do not be afraid to interact w/ me or friends , we’d love to have you ! 
 We don’t bite ! 
 
 <img width="99" height="56" alt="IMG_4331" src="https://github.com/user-attachments/assets/fb9af29b-84af-4b8c-a940-087d4471f464" />
@@ -49,11 +49,10 @@ We don’t bite !
 
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
-IF IM FOLLOWING SOMEONE PROBLEMATIC ,, REMIND ME PLEASE ! 
+゛ ⸝⸝.ᐟ⋆ IF IM FOLLOWING SOMEONE PROBLEMATIC ,, REMIND ME PLEASE ! 
 I don’t perfer to be involved in drama , so please do not mention me unless I have done something .
 
 <img width="532" height="24" alt="IMG_5453" src="https://github.com/user-attachments/assets/553723c8-0dbc-4f56-9a4e-026826c1ba27" />
 
 <img width="496" height="503" alt="IMG_4497-removebg-preview" src="https://github.com/user-attachments/assets/25e90c74-4182-4a14-bd09-952f69c0b1f1" />
-
 
