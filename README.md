@@ -46,6 +46,7 @@ We don’t bite !
 <img width="99" height="56" alt="IMG_5450" src="https://github.com/user-attachments/assets/f64a26cf-840f-4bb7-b115-dc9bce199f66" />
 <img width="99" height="56" alt="IMG_5451" src="https://github.com/user-attachments/assets/d04cb2f9-4778-41d7-95d6-d834d4577b13" />
 
+
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
 IF IM FOLLOWING SOMEONE PROBLEMATIC ,, REMIND ME PLEASE ! 
